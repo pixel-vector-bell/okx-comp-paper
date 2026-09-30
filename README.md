@@ -1,0 +1,1 @@
+# OKX compression paper blotter
